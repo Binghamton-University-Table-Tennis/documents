@@ -8,12 +8,10 @@
 
 # Binghamton University Table Tennis Club Links
 
-Club Website: https://binghamtontabletennis.herokuapp.com
+Club Website: <a href="https://binghamtontabletennis.herokuapp.com" target="_blank">https://binghamtontabletennis.herokuapp.com</a>
 
-B-Engaged: https://bengaged.binghamton.edu/organization/table-tennis
+B-Engaged: <a href="https://bengaged.binghamton.edu/organization/table-tennis" target="_blank">https://bengaged.binghamton.edu/organization/table-tennis</a>
 
-YouTube: https://www.youtube.com/channel/UC45jMy1rxcLeeYuInnz4_GQ
+YouTube: <a href="https://www.youtube.com/channel/UC45jMy1rxcLeeYuInnz4_GQ" target="_blank">https://www.youtube.com/channel/UC45jMy1rxcLeeYuInnz4_GQ</a>
 
-Facebook: https://www.facebook.com/groups/binghamtontabletennis
-
-
+Facebook: <a href="https://www.facebook.com/groups/binghamtontabletennis" target="_blank">https://www.facebook.com/groups/binghamtontabletennis</a>
