@@ -39,3 +39,7 @@
 - Add a slideshow to the club website.
 - Post videos to our YouTube channel.
 - Post news/announcements on the Facebook page.
+
+
+## E-Board Meetings
+- You are encouraged to have meetings at least once a month to reflect on the current state of the club and discuss upcoming events.
