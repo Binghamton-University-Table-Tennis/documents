@@ -28,4 +28,5 @@
 
 - Always show up before the scheduled practice time.
 - Wait for enough people to show up before you begin setting up the tables.
+- You are encouraged to reserve one table for drills/multi-ball training.
 - Start packing up before the scheduled end of practice so people can leave on time.
