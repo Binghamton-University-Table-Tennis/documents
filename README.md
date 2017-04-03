@@ -1,4 +1,4 @@
-# Binghamton University Table Tennis Club Documents
+# Documents
 
 [Constitution 2016-2017](Constitution_2016-2017.pdf)
 
@@ -6,7 +6,7 @@
 
 [New E-Board Guide](New_E-Board_Guide.md)
 
-# Binghamton University Table Tennis Club Links
+# Links
 
 ### Club Website
 https://binghamtontabletennis.herokuapp.com
