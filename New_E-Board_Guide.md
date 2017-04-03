@@ -26,7 +26,16 @@
 
 ## Practices
 
+- Take attendance at practices using the club website.
 - Always show up before the scheduled practice time.
 - Wait for enough people to show up before you begin setting up the tables.
 - You are encouraged to reserve one table for drills/multi-ball training.
 - Start packing up before the scheduled end of practice so people can leave on time.
+
+
+## Social Media
+- Take pictures and videos at tournaments!
+- Add pictures and news articles to B-Engaged. Ask the club sports director on how to do this.
+- Add a slideshow to the club website.
+- Post videos to our YouTube channel.
+- Post news/announcements on the Facebook page.
