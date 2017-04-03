@@ -1,5 +1,10 @@
 # New E-Board Guide
 
+## Tabling Events and Promoting the Club
+- Reserve a spot at the fall semester club fair. A lot of new students are looking for clubs to join and it is a good time to show our presence on campus. You may have to come to campus a few days earlier.
+- Another tabling opportunity is the open house for admitted students. This takes place in the spring semester.
+- Look out for emails for other tabling opportunities.
+
 ## Tournaments
 
 ##### NCTTA
