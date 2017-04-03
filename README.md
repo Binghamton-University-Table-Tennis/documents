@@ -1,2 +1,3 @@
-# documents
-Binghamton University Table Tennis Documents
+# Binghamton University Table Tennis Club Documents
+
+- Constitution (.docx and .pdf versions)
