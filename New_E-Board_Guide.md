@@ -1,5 +1,7 @@
 # New E-Board Guide
 
+Congrats on becoming an E-Board member for the Binghamton University Table Tennis Club! This guide is meant to provide you with tips for running the club.
+
 ## Tabling Events and Promoting the Club
 - Reserve a spot at the fall semester club fair. A lot of new students are looking for clubs to join and it is a good time to show our presence on campus. You may have to come to campus a few days earlier.
 - Another tabling opportunity is the open house for admitted students. This takes place in the spring semester.
