@@ -33,6 +33,10 @@ Congrats on becoming an E-Board member for the Binghamton University Table Tenni
 
 ## Practices
 
+##### First Practice in the Fall
+- The club sports director needs to come to the first practice. The director will review Club Sports policies and allow you to officially hold practices for the entire academic year.
+
+##### All Practices
 - Take attendance at practices using the club website.
 - Always show up before the scheduled practice time.
 - Wait for enough people to show up before you begin setting up the tables.
