@@ -12,7 +12,7 @@ Congrats on becoming an E-Board member for the Binghamton University Table Tenni
 ##### NCTTA
 
 - Watch for emails from the NCTTA. 
-- Emails may go to your emails listed in the constitution or to the official club email.
+- NCTTA announcements may go to your email listed in the constitution or to the official club email.
 - Pay the entry fee on time or you will be charged extra. The deadline is typically in the middle of the fall semester.
 - The fall and spring divisional tournaments require you to bring an eligibility form. All competing members must sign the form and the form must be stamped by the registrar. Regionals and Nationals do not require this form.
 
@@ -26,9 +26,9 @@ Congrats on becoming an E-Board member for the Binghamton University Table Tenni
 
 ## Club Sports Director
 
-- Watch for emails from the clubs sports director, Craig Dube. 
-- He will send out important emails regarding club sports and required meetings. Always attend these meetings!
-- If you have any questions regarding club sports policies or need any help, set up a meeting with the club sports director.
+- Watch for emails from the clubs sports director. 
+- The director will send out important emails regarding club sports and required meetings. Always attend these meetings!
+- If you have any questions regarding club sports policies or need any help, set up a meeting with the director.
 
 
 ## Practices
@@ -50,6 +50,7 @@ Congrats on becoming an E-Board member for the Binghamton University Table Tenni
 - Add a slideshow to the club website.
 - Post videos to our YouTube channel.
 - Post news/announcements on the Facebook page.
+- Create a group on GroupMe as needed.
 
 
 ## E-Board Meetings
