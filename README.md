@@ -6,6 +6,8 @@
 
 [New E-Board Guide](New_E-Board_Guide.md)
 
+[How to Use the Club Website](https://github.com/Binghamton-University-Table-Tennis/website-template/blob/master/README.md)
+
 # Links
 
 #### Club Website
