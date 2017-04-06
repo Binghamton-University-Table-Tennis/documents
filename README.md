@@ -24,3 +24,12 @@ https://www.facebook.com/groups/binghamtontabletennis
 
 #### Photos from 2016-2017 Tournaments
 https://superjeffreyc.imgur.com/
+
+#### Fall 2016 RIT Tournament Slideshow
+https://docs.google.com/a/binghamton.edu/presentation/d/1152Jzvxr-hDXlGE1zaT4_NuZf8sl-GAIvCUhhzMA800/edit?usp=sharing
+
+#### Spring 2017 SUNY Oswego Tournament Slideshow
+https://docs.google.com/a/binghamton.edu/presentation/d/1cWFw7n1ZA6faXkT5Qwu_lTgHN7uFeWEy7bOJRT255wc/edit?usp=sharing
+
+#### 2017 Great Lakes Regional Tournament Slideshow
+https://docs.google.com/a/binghamton.edu/presentation/d/1FWiWxX2WwfW2e61S5VmuPsm9tMETN5lylmYO8NZugkI/edit?usp=sharing
