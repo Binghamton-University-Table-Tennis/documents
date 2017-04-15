@@ -19,7 +19,7 @@ Congrats on becoming an E-Board member for the Binghamton University Table Tenni
 ##### Travel
 
 - Save all your receipts so you can get reimbursed when you return.
-- If you plan to rent a car, reserve it at least one week in advance.
+- If you plan to rent a car, reserve it at least one week in advance. Enterprise Rent-A-Car has good pricing. Be sure to ask for a discount equal to the Binghamton employee discount.
 - Set up a meeting with the club sports director if you need help planning your budget. Come prepared with cost estimates.
 - Before you can travel, you need to set up a time to pick up the travel binder at the East Gym. This binder contains emergency contact information and you must bring this binder to the tournament.
 
