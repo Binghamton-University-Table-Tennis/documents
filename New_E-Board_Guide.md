@@ -13,13 +13,14 @@ Congrats on becoming an E-Board member for the Binghamton University Table Tenni
 
 - Watch for emails from the NCTTA. 
 - NCTTA announcements may go to your email listed in the constitution or to the official club email.
-- Pay the entry fee, through PayPal, on time or you will be charged extra. The club sports director can do this for you using the club budget. The deadline is typically early/mid fall semester.
+- Pay the entry fee on time or you will be charged extra. If you set up a meeting, the club sports director can do this for you using the club budget. The deadline is typically early/mid fall semester.
 - The fall and spring divisional tournaments require you to bring an eligibility form. All competing members must sign the form and the form must be stamped by the registrar. Regionals and Nationals do not require this form.
 
 ##### Travel
 
 - Save all your receipts so you can get reimbursed when you return.
-- If you plan to rent a car, reserve it at least one week in advance. Enterprise Rent-A-Car has good pricing. Be sure to ask for a discount equal to the Binghamton employee discount.
+- If you plan to rent a car, reserve it at least one week in advance. Enterprise Rent-A-Car has good pricing (Be sure to ask for a discount equal to the Binghamton employee discount).
+- Lodging can be expensive. For divisional tournaments, which are likely to be within a 2 hour driving distance, a day trip should suffice. For regionals and beyond, a hotel or apartment is most likely required.
 - Set up a meeting with the club sports director if you need help planning your budget. Come prepared with cost estimates.
 - Before you can travel, you need to set up a time to pick up the travel binder at the East Gym. This binder contains emergency contact information and you must bring this binder to the tournament.
 
