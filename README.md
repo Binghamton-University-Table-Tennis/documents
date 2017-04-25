@@ -20,7 +20,7 @@ https://bengaged.binghamton.edu/organization/table-tennis
 https://www.youtube.com/channel/UC45jMy1rxcLeeYuInnz4_GQ
 
 #### Facebook
-https://www.facebook.com/groups/binghamtontabletennis
+https://www.facebook.com/groups/binghamtonuniversitytabletennis/
 
-#### Photos from 2016-2017 Tournaments
+#### Photos from 2016-2017 Year
 https://superjeffreyc.imgur.com/
