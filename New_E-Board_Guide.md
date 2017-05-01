@@ -42,6 +42,7 @@ Congrats on becoming an E-Board member for the Binghamton University Table Tenni
 - Always show up before the scheduled practice time.
 - Wait for enough people to show up before you begin setting up the tables.
 - You are encouraged to reserve one table for drills/multi-ball training.
+- Come up with a system to determine who gets to play next on a table, especially for the first few practices where you have many people waiting to play.
 - Start packing up before the scheduled end of practice so people can leave on time.
 
 
