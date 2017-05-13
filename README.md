@@ -1,6 +1,6 @@
 # Documents
 
-[Constitution 2016-2017](Constitution_2016-2017.pdf)
+[Constitution 2017-2018](Constitution_2017-2018.pdf)
 
 [Constitution Template](Constitution_Template.docx)
 
